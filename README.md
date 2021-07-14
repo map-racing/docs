@@ -1,1 +1,1 @@
-# docs
+privacy policy
